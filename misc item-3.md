@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Interests
-permalink: /misc/item-2/
+permalink: /misc/item-3/
 ---
 
 ## 매트릭스 3 - 레볼루션 / 네오와 스미스의 마지막 전투 part1
