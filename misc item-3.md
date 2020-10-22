@@ -29,15 +29,49 @@ Property and rights go to respective owners.
 Copyright owner: Warner Music Group (Maverick) respectively
 For entertainment and listening purposes only.
 
-## (The Matrix Revolutions매트릭스3레볼루션,2003)(5/6)
+## The Matrix Reloaded (6/6) Movie CLIP - Beat the Bullet (2003) HD
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BtkzHvIJFKc" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
- '시온'은 센티넬이라는 기계군단에게 장악될 위기에 처하고, 자신의 능력에 대한 더 큰 통제력을 갖게 된 네오는 인류의 구원을 위해 트리니티, 모피어스(로렌스 피쉬번)와 함께 시스템에 맞서게 된다. '매트릭스'의 내부 구조로 깊이 들어갈수록, 인류의 운명을 좌우할 자신의 역할에 눈 떠가던 네오는 '설계자'를 만나 자신의 존재가 설계자에 의해 만들어진 통제 시스템에 불과하다는 충격적인 진실에 직면한다. 그리고 '사랑인가, 인류의 구원인가!'라는 불가능에 가까운 선택을 강요 받는 네오. 둘 중 하나는 포기해야 한다!
-  진실을 찾는 여정에 한걸음 더 접근하게 된 네오. 그러나 그 와중에 능력을 소진하고 매트릭스와 현실세계의 중간계를 떠돌게 된다. 한편, 기계들이 인간말살을 목적으로 인류 최후의 보루 '시온'으로 침공해오자 인간들은 인류의 미래를 지키기 위해 필사적인 전투를 벌인다. 그러나 베인의 몸 속에 침투한 에이전트 스미스(휴고 위빙)가 본 모습을 드러내면서 네오에게는 예기치 못한 새로운 변수가 생긴다. 매순간 세력이 커져가면서 기계들의 통제권까지 벗어난 스미스는 현실 세계와 매트릭스는 물론 기계도시까지 말살할 야욕을 불태운다. 이에 네오에게 마지막 조언을 건네는 오라클(매리 앨리스). 네오는 오라클 역시 매트릭스라는 거대한 구조 속에 존재하는 하나의 프로그램에 불과할 수 있음을 알면서도 그녀의 조언을 받아들인다. 니오베(제이다 핀켓 스미스)의 도움으로 네오와 트리니티는 일찍이 그 어느 인간도 가본적이 없는 세계, 기계 도시의 심장부로 잠입한다. 그곳에서 기계 세상의 절대 권력자(DEUS EX MACHINA)를 만나 파멸 직전의 인류를 구원키 위한 최후의 카드를 던지는데... 이제 드디어 인류 최후의 거대한 진실이 그 베일을 벗는다!
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KY_pTVfz3gU" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-일부 지역에서는 광고가 포함될 수 있습니다.
-광고 수익은 저작권 소유자에게 지급됩니다.
+The Matrix Reloaded movie clips: http://j.mp/1L65GA8
+BUY THE MOVIE: http://bit.ly/2ci13tg
+Don't miss the HOTTEST NEW TRAILERS: http://bit.ly/1u2y6pr
+
+CLIP DESCRIPTION:
+Neo (Keanu Reeves) flies to rescue Trinity (Carrie-Anne Moss).
+
+FILM DESCRIPTION:
+After creating an international sensation with the visually dazzling and intellectually challenging sci-fi blockbuster The Matrix, the Wachowski brothers returned with the first of two projected sequels that pick up where the first film left off. Neo (Keanu Reeves) and Trinity (Carrie-Anne Moss) have been summoned by Morpheus (Laurence Fishburne) to join him on a voyage to Zion, the last outpost of free human beings on Earth. Neo and Trinity's work together has been complicated by the fact the two are involved in a serious romantic relationship. Upon their arrival in Zion, Morpheus locks horns with rival Commander Lock (Harry J. Lennix) and encounters his old flame Niobe (Jada Pinkett Smith). Meanwhile, Agent Smith (Hugo Weaving) has returned with some surprises for Neo, most notably the ability to replicate himself as many times as he pleases. Neo makes his way to The Oracle (Gloria Foster), who informs him that if he wishes to save humankind, he must unlock "The Source," which means having to release The Key Maker (Randall Duk Kim) from the clutches of Merovingian (Lambert Wilson). While Merovingian refuses to cooperate, his wife, Persephone (Monica Bellucci), angry at her husband's dalliances with other women, offers to help, but only in exchange for a taste of Neo's affections. With The Keymaker in tow, Neo, Trinity, and Morpheus are chased by Merovingian's henchmen: a pair of deadly albino twins (Neil Rayment and Adrian Rayment). Filmed primarily in Australia and California (the extended chase scene was shot on a stretch of highway build specifically for the production outside of San Francisco), The Matrix Reloaded was produced in tandem with the third film in the series, The Matrix Revolutions.
+
+CREDITS:
+TM & © Warner Bros. (2003)
+Cast: Laurence Fishburne, Harold Perrineau, Keanu Reeves, Carrie-Anne Moss
+Directors: Andy Wachowski, Lana Wachowski
+Producers: Bruce Berman, David Forbes, Grant Hill, Andrew Mason, Phil Oosterhouse, Vicki Popplewell, Steve Richards, Joel Silver, Andy Wachowski, Lana Wachowski
+Screenwriters: Andy Wachowski, Lana Wachowski
+
+WHO ARE WE?
+The MOVIECLIPS channel is the largest collection of licensed movie clips on the web. Here you will find unforgettable moments, scenes and lines from all your favorite films. Made by movie fans, for movie fans.
+
+SUBSCRIBE TO OUR MOVIE CHANNELS:
+MOVIECLIPS: http://bit.ly/1u2yaWd
+ComingSoon: http://bit.ly/1DVpgtR
+Indie & Film Festivals: http://bit.ly/1wbkfYg
+Hero Central: http://bit.ly/1AMUZwv
+Extras: http://bit.ly/1u431fr
+Classic Trailers: http://bit.ly/1u43jDe
+Pop-Up Trailers: http://bit.ly/1z7EtZR
+Movie News: http://bit.ly/1C3Ncd2
+Movie Games: http://bit.ly/1ygDV13
+Fandango: http://bit.ly/1Bl79ye
+Fandango FrontRunners: http://bit.ly/1CggQfC
+
+HIT US UP:
+Facebook: http://on.fb.me/1y8M8ax
+Twitter: http://bit.ly/1ghOWmt
+Pinterest: http://bit.ly/14wL9De
+Tumblr: http://bit.ly/1vUwhH7
 
 ## The Matrix Revolutions- Final Battle
 
