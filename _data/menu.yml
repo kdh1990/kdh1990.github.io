@@ -13,5 +13,7 @@
       subhref: "/misc/item-1/"
     - subtitle: "Item 2"
       subhref: "/misc/item-2/"
+    - subtitle: "Item 3"
+      subhref: "/misc/item-3/"
 - title: "Blog"
   href: "/blog/"
